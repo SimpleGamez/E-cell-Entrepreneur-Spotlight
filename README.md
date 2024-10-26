@@ -1,1 +1,1 @@
-# E-cell-Entrepreneur-Spotlight
+# E-cell Entrepreneur Spotlight
